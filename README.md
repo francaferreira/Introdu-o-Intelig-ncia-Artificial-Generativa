@@ -1,3 +1,6 @@
+![Leonardo_Phoenix_09_A_futuristic_sleek_and_silvertoned_robot_s_3](https://github.com/user-attachments/assets/b40a11bd-5909-447f-8978-1d4c27b036ad)
+
+
 # Introdução à Inteligência Artificial Generativa
 
 > ##  Descrição ⚠️
